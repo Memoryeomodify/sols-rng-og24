@@ -1,4 +1,4 @@
-
+Get ahead in sol's rng with sol's rng Script updated, featuring auto-sell and teleport. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
